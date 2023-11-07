@@ -12,8 +12,8 @@ gabriel.lopes05@escola.pr.gov.br
 
 @Gabbe_llopes
 
+![descrição do GIF](https://giphy.com/gifs/tv2norge-dance-celebration-birthday-duNowzaVje6Di3hnOu)
 
-![https://giphy.com/gifs/tv2norge-dance-celebration-birthday-duNowzaVje6Di3hnOu]
 
      Gabriel Lopes      
        17 anos
