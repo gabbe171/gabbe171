@@ -2,7 +2,10 @@
 
 Meu nome é Gabriel Lopes
 tenho 17 anos
-
+ flamengista
+  goleiro futsal 
+              🥅 🧤 ⚽
+  
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
