@@ -1,21 +1,18 @@
 ### Boas vindas ao meu perfil :blue_heart
 
 Meu nome é Gabriel Lopes
+tenho 17 anos
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
 
 gabriel.lopes05@escola.pr.gov.br
 
 @Gabbe_llopes
 
-![descrição do GIF](https://giphy.com/gifs/tv2norge-dance-celebration-birthday-duNowzaVje6Di3hnOu)
+![](https://media.tenor.com/FuYhS1n_c0IAAAAC/cat-piano.gif)
 
 
-     Gabriel Lopes      
-       17 anos
-         Flamenguista                       
-       goleiro futsal
+     
