@@ -1,7 +1,7 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 👍
 
 Meu nome é Gabriel Lopes
-tenho 17 anos
+tenho 17 anos,
  flamengista
   goleiro futsal 
               🥅 🧤 ⚽
