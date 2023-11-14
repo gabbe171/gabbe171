@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 👍
+### Boas vindas ao meu perfil 😃👍
 
 Meu nome é Gabriel Lopes
 tenho 17 anos,
