@@ -13,6 +13,5 @@ tenho 17 anos,
 
 @Gabbe_llopes
 
-![](https://media.tenor.com/FuYhS1n_c0IAAAAC/cat-piano.gif)                         ![](https://media.tenor.com/TzaUHHp9un4AAAAd/huh-cat-roblox-huh.gif)
+![](https://media.tenor.com/FuYhS1n_c0IAAAAC/cat-piano.gif)        ![](https://media.tenor.com/ZuXnTDxIbjQAAAAC/shocked-shocked-cat.gif)   ![](https://media.tenor.com/NQfq1liFH-8AAAAd/byuntear-sad.gif)
 
-    
