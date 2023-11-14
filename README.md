@@ -2,7 +2,7 @@
 
 Meu nome é Gabriel Lopes
 tenho 17 anos,
- flamenguista
+ flamenguista,
   goleiro futsal 
               🥅 🧤 ⚽
   
