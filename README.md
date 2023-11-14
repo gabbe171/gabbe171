@@ -11,8 +11,6 @@ tenho 17 anos,
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-gabriel.lopes05@escola.pr.gov.br
-
 @Gabbe_llopes
 
 ![](https://media.tenor.com/FuYhS1n_c0IAAAAC/cat-piano.gif)
